@@ -6,10 +6,10 @@ Hi everyone! My name is Anthony Llorico and I am a third year majoring in ECE. M
 ## Hobbies
 
 ### Playing Video Games 
-Although I don't get nearly as much time as I used to nowadays, without a doubt one of my favorite hobbies is playing video games! If you had to ask me what my favorite game of all-time was, I couldn't really tell you to be honest... I like a lot of games, but I mostly like survival/sandbox games, rougelikes, FPSs, and indie games!
+Although I don't get nearly as much time as I used to nowadays, without a doubt one of my favorite hobbies is playing video games! If you had to ask me what my favorite game of all-time is, I'd easily have to say Pikmin, both 1 and 2. I remember being ecstatic when my dad got Pikmin 2 for me as a kid, and I have some fond memories of those games! I like a lot of other games too, but I mostly like survival/sandbox games, rougelikes, FPSs, strategy games, RPGs, and indie games!
 
 ### Watching Anime and Reading Manga
-Similarly to video games, I also like watching anime and reading manga from time to time, though nowadays I don't get the chance to nearly as much :'). And similarly to video games, I couldn't tell you an all-time favorite anime of mine either haha. But some of my favorite genres include slice-of-life, action, comedy, and even romance/rom com animes can be pretty great too!
+Similarly to video games, I also like watching anime and reading manga from time to time, though nowadays I don't get the chance to nearly as much :'). In all honesty though, I couldn't really tell you an all-time favorite anime of mine... But some of my favorite genres include slice-of-life, action, comedy, and even romance/rom com animes can be pretty great too!
 
 ### Baking
 Aside from all the nerdy stuff I just talked about, I also like baking! It's quite the process, but the end result is always so satisfying (and pretty tasty too haha). When I first started I baked mostly cookies and breads, though nowadays I'm trying to branch more into cakes, and I wanna try to bake cakes for my friends' birthdays as practice. At least it gives me a reason to bake a cake, plus it serves as a nice lil gift for them! I'm still a total casual at baking though and just bake off of recipes. It would be cool to someday have the ability to create my own though!
