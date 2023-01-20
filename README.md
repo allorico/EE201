@@ -1,1 +1,1 @@
-Check out my aboutMe folder to learn a bit about me!
+This branch is dedicated to my Arduino stuff. Check out the Arduino folder for my code for these exercises.
