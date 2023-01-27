@@ -1,1 +1,1 @@
-This branch is dedicated to my Arduino stuff. Check out the Arduino folder for my code for these exercises.
+This branch is dedicated to my lab4 stuff. All of my deliverables for this part of the course can be found in the lab4 folder here.
